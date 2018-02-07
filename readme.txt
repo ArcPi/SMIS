@@ -1,1 +1,1 @@
-Our team achieved this project. It toke our long time. 
+Our team achieved this project. It takes our long time. 
